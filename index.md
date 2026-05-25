@@ -85,4 +85,4 @@ We may update this Privacy Policy from time to time. The updated policy will be 
 
 For privacy questions, support requests, or deletion requests, contact:
 
-artovia.vision@gmail.com
+flowcraft.support@gmail.com
